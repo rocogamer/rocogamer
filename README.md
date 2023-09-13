@@ -9,6 +9,8 @@
 
 - 💬 Ask me about **any skill, and I will say you if I can help you**
 
+- 📫 How to reach me via discord: **roco__gamer**
+
 - 📄 Know about my experiences [https://www.linkedin.com/in/imagreez/](https://www.linkedin.com/in/imagreez/)
 
 <h3 align="left">Connect with me:</h3>
